@@ -1,8 +1,8 @@
-# :sparkles::sparkles:91网新布页:sparkles::sparkles:
+# :sparkles::sparkles:91网新发布页:sparkles::sparkles:
 
  :heart: :point_right: 【最新地址1】 ：https://91vx.github.io/91wangzhan/   （点击打开，看完记得收藏)
  ------
- :heart: :point_right: 【最新地址2】 ：https://91vx.github.io/91wangzhan/v   （点击打开，看完记得收藏)
+ :heart: :point_right: 【最新地址2】 ：https://91vx.github.io/91wangzhan/   （点击打开，看完记得收藏)
  ------
  :heart: :point_right: 【最新地址3】 ：https://91vx.github.io/91wangzhan/   （点击打开，看完记得收藏)
  ------
